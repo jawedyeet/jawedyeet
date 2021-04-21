@@ -31,5 +31,7 @@ If you want to support me financially what you want, especially Bitcoin and Ethe
 
 
 
+--------------------------------------------------------------------------------
 
+you can come to my server for support and to spend time in a community : https://discord.gg/mwQsvtBjhV
 
