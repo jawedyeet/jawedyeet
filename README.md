@@ -9,7 +9,7 @@ Vrytxm, which i founded, has been active since 2020.
 
 2021 🚀
 ・Nuts86 Community 
-・Vrytxn.com
+                                                                                                                                                                                  ・Vrytxn.com
 ・Auto Poster
 ・Youtube Videos 
 
